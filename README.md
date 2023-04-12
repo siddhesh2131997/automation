@@ -1,2 +1,2 @@
-# autojmation
+# automation
 hsjkNKNAJN AJBJKABAJDN,DNAKL

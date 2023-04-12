@@ -1,0 +1,2 @@
+# autojmation
+hsjkNKNAJN AJBJKABAJDN,DNAKL
